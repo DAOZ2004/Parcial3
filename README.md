@@ -1,1 +1,5 @@
-# Parcial3
+# Integrantes:
+
+**Daniel Antonio Orellana Zelaya**
+
+**Daniela Kristhel Marquez Chavez**
