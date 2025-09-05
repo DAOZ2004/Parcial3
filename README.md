@@ -4,4 +4,4 @@
 
 **Daniela Kristhel Marquez Chavez**
 
-<img src="https://estudiantes.ugb.edu.sv/img/logos/logo_azul_vertical.png">
+<img src="https://cdn-pro.elsalvador.com/wp-content/uploads/2023/10/UGB_LOGOTIPO_HORIZONTAL_POS.jpg">
