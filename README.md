@@ -1,8 +1,8 @@
 # Integrantes:
 
-**Daniel Antonio Orellana Zelaya**
+**Daniel Antonio Orellana Zelaya SMSS086223**
 
-**Daniela Kristhel Marquez Chavez**
+**Daniela Kristhel Marquez Chavez SMSS089923**
 
 <img src="https://cdn-pro.elsalvador.com/wp-content/uploads/2023/10/UGB_LOGOTIPO_HORIZONTAL_POS.jpg">
 
